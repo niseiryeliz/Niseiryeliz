@@ -1,3 +1,3 @@
 ## HI , I'M Niseiry ✨
 
-🧠 I'M  a computer science student<br/> 
+🧠 I'm  a computer science student<br/> 
